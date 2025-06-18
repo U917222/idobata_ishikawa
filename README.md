@@ -1,1 +1,1 @@
-# idobata_ishikawa
+# アイデア
